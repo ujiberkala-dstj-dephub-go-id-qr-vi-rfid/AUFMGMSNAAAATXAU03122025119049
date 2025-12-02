@@ -1,1 +1,1 @@
-# AUFMGMSNAAAATXAU03122025119049
+#  https://ujiberkala-dstj-dephub-go-id-qr-vi-rfid.github.io/AUFMGMSNAAAATXAU03122025119049/
